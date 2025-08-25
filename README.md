@@ -1,5 +1,5 @@
 # 💫 About Me: Hello I'am Pradnya More
-CDAC Certified || A passionate Software Developer || Software Test Engineer || Data Analyst<br><br>Email Me 👉 ✉️ morepradnya1503@gmail.com For Collaboration/Project or Anything Else. 😊😊<br><br>🔭 I’m currently working on: Automation Project <br>🌱 I’m currently learning: DevOps <br>👯 I’m looking to collaborate on: Enter your project name and info <br>💬 Ask me about: Collaboration, Tech Support <br>📫 How to reach me: morepradnya1503@gmail.com <br>
+CDAC Certified || A passionate Software Developer || Software Test Engineer || Data Analyst<br><br>🔭 I’m currently working on: Automation Project <br>🌱 I’m currently learning: DevOps <br>👯 I’m looking to collaborate on: Enter your project name and info <br>💬 Ask me about: Collaboration, Tech Support <br>📫 How to reach me: morepradnya1503@gmail.com <br>
 
 
 ## 🌐 Socials:
